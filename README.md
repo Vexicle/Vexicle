@@ -1,10 +1,10 @@
-### gleep gleep glop
-#glop glib glip glip:
-- geep glob glop
-- gop gop giip
-- gob gob geep
-- geep gob gob
-#gob gob geep 👉👉👉🙏🙏
+### gleep gleep glop 
+##**glop glib glip glip:**
+- geep glob **glop**
+- gop gop **giip**
+- gob gob **geep**
+- geep **gob gob**
+##gob gob geep 👉👉👉🙏🙏
  
 
 <!--
